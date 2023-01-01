@@ -1,1 +1,1 @@
-NothingOfficiall.github.io
+nothingofficiall.github.io
